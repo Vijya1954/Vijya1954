@@ -1,4 +1,4 @@
-👋 Hi, I’m Vijya.Kirpalani@newham.gov.uk@Vijya1954
+👋 I’m Vijya.Kirpalani@newham.gov.uk
 👀 I’m interested in  in this system
 I’m currently learning this sytem
 I’m looking to collaborate on working together
